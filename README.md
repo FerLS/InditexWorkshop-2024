@@ -1,3 +1,7 @@
+>[!NOTE]
+>No pude llegar a acabar el reto 😅, por ahora se queda en espera, estan hechas las fases 1 y 2
+
+
 ## Introducción
 
 INDITEX amplía su equipo, y por ello se ha creado un reto para encontrar el talento que necesitan incorporar a sus filas.
